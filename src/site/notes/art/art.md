@@ -276,7 +276,6 @@
 - **Satanic Gang**
 	- [[art/Satanic Gang/Beezlballs\|Beezlballs]]
 	- [[art/Satanic Gang/Bite Kids Hail Satan\|Bite Kids Hail Satan]]
-	- [[art/Satanic Gang/Bite Kids, Hail Satan\|Bite Kids, Hail Satan]]
 	- [[art/Satanic Gang/Eat Trash, Hail Satan\|Eat Trash, Hail Satan]]
 	- [[art/Satanic Gang/Eve Was Framed\|Eve Was Framed]]
 	- [[art/Satanic Gang/Hail Santa\|Hail Santa]]
