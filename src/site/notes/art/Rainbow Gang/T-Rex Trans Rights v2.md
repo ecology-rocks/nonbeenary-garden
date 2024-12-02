@@ -2,10 +2,11 @@
 {"dg-publish":true,"permalink":"/art/rainbow-gang/t-rex-trans-rights-v2/","title":"T-Rex Trans Rights v2","tags":["Art","Rainbow Gang"]}
 ---
 
+When I first started out drawing digital art, I wanted to draw the slightly absurd things that came to my mind. This was one of them. 
 
-![](https://baserow-media.ams3.digitaloceanspaces.com/user_files/XwnVhL3eDbXdIQxd5t9k3uowAtht0O77_d0ee415149dcc66fec9b76157734362b175b3650e90c9a42bce0e797d1bb21ed.png)
+I drew this piece in September 2020, right before we moved back to Ohio. I don't remember which program I used, but I saved it as a PSD so my guess is that I was still on Photoshop back then. The shadows on the flag were really important to me.  
 
-An art piece from Nonbeenary Designs. You can get yours at:
+![trextransrights2024.jpg](/img/user/art/Rainbow%20Gang/trextransrights2024.jpg)
 
-[TeePublic]()
-[Redbubble]()
+You can get your copy of this piece from:
+ - [TeePublic](https://www.teepublic.com/t-shirt/13992174-t-rex-for-trans-rights-funny-trans-pride-design?store_id=258912)
